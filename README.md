@@ -1,1 +1,1 @@
-Hi, I copy code.
+Ik leen tactisch codes van mensen.
