@@ -1,1 +1,6 @@
-Ik leen tactisch codes van mensen.
+💻 Minecraft Development
+
+🙍‍♂️17 y/o
+
+🇳🇱 Nederlands! (Gekoloniseerd)
+
